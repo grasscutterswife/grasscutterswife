@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @grasscutterswife
+- 👀 I’m interested in infromation policy, UX and AI research
+- 🌱 I’m currently learning Project Managment and R Studio
+- 💞️ I’m looking to collaborate on Research
+- 📫 Reach me through email. 
